@@ -1,0 +1,2 @@
+# -Neo-Coffee-Bar-
+NEO COFFEE BAR opened in August of 2015. Located in St. Lawrence Market neighbourhood on Frederick Street and open 7 days a week, it is the perfect spot to sit and catch up on the day’s news while enjoying your caffeine fix. We are neighbours with schools and big offices alike, and we make everyone feel like they have a community space to share. We look forward to making NEO COFFEE BAR your new local.
